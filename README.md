@@ -8,7 +8,5 @@ https://drive.google.com/file/d/1WLU2JtAHbAqRP4MkvDrvPPt3ba4IU-Vo/view?usp=shari
 apresentacao slide
 https://gamma.app/docs/Batalha-Naval-tph9ktpyxccr8oq
 
-Documento detalhado BatalhaNaval:
-https://1drv.ms/w/c/44e3190afa4e5f80/EX4VX1EpFUxCnVw2Hdjq_CoBTDjE8vma3YKqHH2F6-_Vxg?e=gnPxxH
 Documento Detalhado Batalha Naval:
 https://drive.google.com/file/d/1ox_WINEpxw9ytyQQj32pGU1sSusczLqn/view?usp=sharing
